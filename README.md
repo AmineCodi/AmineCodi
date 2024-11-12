@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello, I'm Amine, a passionate Mechatronic Engineer with a strong interest in Coding. Let's build the future together! Happy coding! 🚀
+Hello, I'm Amine, a Mechatronic Engineer with a strong interest in Coding. Let's build the future together! Happy coding! 🚀
 
 
 ## 🌐 Socials:
